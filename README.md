@@ -13,7 +13,7 @@
 [![Generic badge](https://img.shields.io/badge/Download-windows-blue.svg)](https://download.eset.com/com/eset/apps/home/vpn/windows/latest/eset_vpn_installer.exe)
   
 
-[READ HERE](https://t.me/F_NiREvil/2113)
+[READ HERE](https://t.me/EsetvpnLicense)
 
 ---
 
@@ -83,7 +83,7 @@ z6M!!d"C1ISduTY!<(28m
 [![Generic badge](https://img.shields.io/badge/Download-windows-blue.svg)](https://download.eset.com/com/eset/apps/home/vpn/windows/latest/eset_vpn_installer.exe)
   
 
-[READ HERE](https://t.me/F_NiREvil/2113)
+[READ HERE](https://t.me/EsetvpnLicense)
 
 ---
 
@@ -153,7 +153,7 @@ J?t"8{/E`5oF1WO*|'%F
 [![Generic badge](https://img.shields.io/badge/Download-windows-blue.svg)](https://download.eset.com/com/eset/apps/home/vpn/windows/latest/eset_vpn_installer.exe)
   
 
-[READ HERE](https://t.me/F_NiREvil/2113)
+[READ HERE](https://t.me/EsetvpnLicense)
 
 ---
 
@@ -223,7 +223,7 @@ ollivander.jonluke@fsitip.com
 [![Generic badge](https://img.shields.io/badge/Download-windows-blue.svg)](https://download.eset.com/com/eset/apps/home/vpn/windows/latest/eset_vpn_installer.exe)
   
 
-[READ HERE](https://t.me/F_NiREvil/2113)
+[READ HERE](https://t.me/EsetvpnLicense)
 
 ---
 
